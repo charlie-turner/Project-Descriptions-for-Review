@@ -1,5 +1,5 @@
 ## Reviewer Instructions
-**Please [read these review instructions](https://docs.google.com/document/d/1Qq5-8s1mPb3PFVUbu10-gmixGZDeFyz5vE482NNj6jw/pub) for additional information.**
+Are available from the Description tab of the Reviews app. Please read them carefully before embarking on any reviews.
 
 ## Project Overview
 
